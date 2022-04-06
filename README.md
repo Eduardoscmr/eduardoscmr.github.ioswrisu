@@ -1,1 +1,0 @@
-# eduardoscmr.github.ioswrisu
